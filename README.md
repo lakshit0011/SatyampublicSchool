@@ -1,1 +1,1 @@
-# Ngtp
+# Satyam public school
